@@ -48,7 +48,10 @@ Ejemplo:
 
 ![WhatsApp Image 2022-11-11 at 18 17 21](https://user-images.githubusercontent.com/105259381/201446065-8e78f578-eef7-4cd2-ba8d-6ef0a6d0966d.jpeg)
 
-![image](https://user-images.githubusercontent.com/105259381/201446167-fed0eca7-9d03-4b74-8032-10414b9165fe.png)
+![WhatsApp Image 2022-11-11 at 18 17 21 (1)](https://user-images.githubusercontent.com/105259381/201446075-f78be921-b936-46c2-9ef7-a51d40b9f09f.jpeg)
+
+![WhatsApp Image 2022-11-11 at 19 08 45](https://user-images.githubusercontent.com/105259381/201446380-c1cb9c69-ed42-403f-9aa9-33c054009abe.jpeg)
+
 
 
 
